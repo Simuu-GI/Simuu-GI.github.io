@@ -1,2 +1,5 @@
 # Simuu-GI.github.io
-This is my github account 🗿
+# Activity report of induction program
+
+|**DAY 1**|
+

@@ -5,7 +5,7 @@
 |__DAY 2__| On the second day we visited the auditorium and firstly we listen to the incharge of TAC and Director of STEP GNE DR.ARVIND DHINGRA. After that we listen to the Dean student welfare DR.PARMINDER SINGH and at the last we interreacted with CoE DR.HS RAI. We again had a memorable day at the college.
 |__DAY 3__| On third day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.
 |__DAY 4__| On the fourth day of induction program we firslty intereacted with DR. RANDHIR SINGH who instructed us about the github app and helped us to create github accounts. After him we listened to presitigous thoughts of Dr. PYARE LAL. Then MR. SONY GOYAL motivated us to be sucessfull in life. At last MR.PANCHAM delivered us beautiful message.
-![Mr. Sony Goyal](https://github.com/Simuu-GI/Simuu-GI.github.io/issues/1#issue-2424277722)
+![images](https://github.com/user-attachments/assets/6dd72969-b299-4dce-9ef9-20f98774d00f)
 
 |__DAY 5__| On the fifth day of induction program we had some activities related to quantative aptitude and english vocabulary. On this day we also had group discussion.
 |__DAY 6__| On the sixth day we attended our MATHS classes at WORKSHOP HALL. after this we headed to ME SEMINAR HALL to attend UNIVERSAL HUMAN VALUES CLASS.
